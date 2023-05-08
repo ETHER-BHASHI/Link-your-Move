@@ -7,4 +7,12 @@ Gait refers to the locomotion of human limbs; a person with gait abnormalities c
 
 
 
-[Untitled video - Made with Clipchamp (1).zip](https://github.com/ETHER-BHASHI/Link-your-Move/files/11421950/Untitled.video.-.Made.with.Clipchamp.1.zip)
+
+
+
+https://user-images.githubusercontent.com/109645593/236850526-5a4c4457-82a3-492c-a4a3-74702b5749bf.mp4
+
+
+
+https://user-images.githubusercontent.com/109645593/236850550-db6a2a31-de86-4522-94ed-2f7dff2c1d6b.mp4
+
